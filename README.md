@@ -1,1 +1,1 @@
-Yurtdışına freelance olarak yaptığım web sitesi www.marmara.com 'dan ulaşabilirisiniz.
+Yurtdışına freelance olarak yaptığım web sitesi www.marmaracuisine.com 'dan ulaşabilirisiniz.
